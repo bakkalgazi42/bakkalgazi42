@@ -1,4 +1,3 @@
-# bakkalgazi42-READ.me
 ## Hey 👋, I'm Kubilay Bıyıkoğlu  
   
 
